@@ -1,7 +1,9 @@
 ## HI HELLO!!! (⁠ㆁ⁠ω⁠ㆁ⁠)
 usually off-tab, afk even around friends, im a med student and tend to be rlly busy :'3
 —————————————————————————
-c+h always encouraged unless with friends (other friends can int whenever), if you initiate a conversation I WILL be really social, but be first pls..
+c+h always encouraged unless with friends (other friends can int whenever), if you initiate a conversation I WILL be really social, but be first pls.
+-
+current interests are : tf2, forsaken, creatures of sonaria, rdr2, brawl stars, ultrakill, pressure, cod
 <!--
 **zmeyaz/zmeyaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
