@@ -3,6 +3,8 @@ usually off-tab, afk even around friends, im a med student and tend to be rlly b
 
 c+h always encouraged unless with friends (other friends can int whenever), if you initiate a conversation I WILL be really social, but be first pls.
 
+you'll definitely get my attention faster by whispering, if i dont respond im truly sorry!
+
 current interests are : tf2, madcom, forsaken, block tales, creatures of sonaria, rdr2, brawl stars, ultrakill, pressure
 <!--
 **zmeyaz/zmeyaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
