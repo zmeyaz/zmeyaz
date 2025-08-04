@@ -5,7 +5,9 @@ c+h always encouraged unless with friends (other friends can int whenever), if y
 
 you'll definitely get my attention faster by whispering, if i dont respond im truly sorry!
 
-current interests are : tf2, madcom, forsaken, block tales, creatures of sonaria, rdr2, brawl stars, ultrakill, pressure
+ current interests are : tf2, madcom, forsaken, block tales, creatures of sonaria, rdr2, brawl stars, ultrakill, pressure 
+- mostly games but i love horror movies too! current fav the strangers, mbv, friday 13th and apocalyptic movies<3
+- music taste is very flexible i listen to everything (almosttt)
 
 i love my friends and making new ones too, im a social fella and wouldn't mind learning a thing or two about something new!! 
 
