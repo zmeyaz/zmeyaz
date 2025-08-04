@@ -6,6 +6,10 @@ c+h always encouraged unless with friends (other friends can int whenever), if y
 you'll definitely get my attention faster by whispering, if i dont respond im truly sorry!
 
 current interests are : tf2, madcom, forsaken, block tales, creatures of sonaria, rdr2, brawl stars, ultrakill, pressure
+
+i love my friends and making new ones too, im a social fella and wouldn't mind learning a thing or two about something new!! 
+
+basic dni list, people who are overly rude diagnosed or not i do not tolerate disrespect in any way! know your worth :)
 <!--
 **zmeyaz/zmeyaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
