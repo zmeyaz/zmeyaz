@@ -1,6 +1,8 @@
 ## HI HELLO!!! (⁠ㆁ⁠ω⁠ㆁ⁠)
 usually off-tab, afk even around friends, im a med student and tend to be rlly busy :'3
 
+demigirlflux / demiromantic do whatever u want with this info auhghh
+
 c+h always encouraged unless with friends (other friends can int whenever), if you initiate a conversation I WILL be really social, but be first pls.
 
 you'll definitely get my attention faster by whispering, if i dont respond im truly sorry!
